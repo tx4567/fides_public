@@ -6,4 +6,4 @@ During our time of operation, standard exchanges fell to the alure of DeFi proje
 
 The remaining founders of Fides Exchange remains hopefuly that sometime in the future, we may again operate an exchange that operates for the benefit of the users and crypto economy.
 
-If you have any questions, you can always reach us at fide.exchange@gmail.com
+If you have any questions, you can always reach us at fides.exchange@gmail.com
